@@ -2,7 +2,7 @@
 
 We're Remilia (she/they), Xeon (they/them), and Takeno (she/her), alias the prettysunflower (operating) system! 🌻
 
-We are software/website developers at the Réseau Koumbit, Factorio and Touhou players, and your local trans woman/enby/plural person.
+We are software/website developers, system administrators, Factorio and Touhou players, and your local trans woman/enby/plural person.
 
 We do love doing computer/servers/code stuff, riding trains, and reading yuri manga. Oh, and sunflowers, of course, they're pretty! 
 
