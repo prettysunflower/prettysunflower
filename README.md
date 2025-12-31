@@ -1,6 +1,6 @@
 # Nyallo! (=^ ◡ ^=)
 
-We're Remilia (she/they), Xeon (they/them), and Takeno (she/her), alias the prettysunflower (operating) system! 🌻
+We're Remilia (she/they), Xenon (they/them), and Takeno (she/her), alias the prettysunflower (operating) system! 🌻
 
 We are software/website developers, system administrators, Factorio and Touhou players, and your local trans woman/enby/plural person.
 
